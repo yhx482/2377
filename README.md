@@ -42,4 +42,4 @@
 
 
 我们致力于打造一个最全、最快、最安全的日本AV免费资源站，让你轻松找到想看的每一部番号，不卡、不跳转、不打扰，是你值得信赖的第一选择。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](http://github.com/yhx482/2377 ）</span>
